@@ -1,1 +1,1 @@
-nieco nove tu je
+nieco nove tu je a skusam mastera
